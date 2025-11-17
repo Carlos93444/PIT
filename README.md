@@ -1,0 +1,1 @@
+Use o README final enviado no ChatGPT.
